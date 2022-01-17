@@ -4,3 +4,5 @@ Amen
 Amen Yes Hallaluya yes.
 Bless His holy name.
 Hallaluya!!
+Bless His holy name.
+Hallaluya!!
